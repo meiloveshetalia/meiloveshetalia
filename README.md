@@ -1,2 +1,1 @@
-![ANGEEEEEL](https://github.com/user-attachments/assets/a54106e2-a20a-40ea-a3dc-96c1e5aa4450)
-
+![FUK](https://github.com/user-attachments/assets/f2a38da2-0859-4b13-b96c-75f03066b6a5)
