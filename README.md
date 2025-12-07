@@ -8,7 +8,7 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀᧔᧓⠀⠀৲♡⠀⊹⠀⠀a *magical* **an**g͟e͟l͟ <br /> 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀![ezgif-108c788e5b3f6878](https://github.com/user-attachments/assets/5a3a2c52-7d1c-4ba4-897f-a5606b8523ae) ![ezgif-137627c8445d54cb](https://github.com/user-attachments/assets/d0f085d3-4131-4119-9cc2-bc91df50029f) ![ezgif-185c6d6fa580c334](https://github.com/user-attachments/assets/7bb3c3aa-0a89-4b44-8055-79396b07a22b) <br />
+⠀⠀⠀⠀⠀⠀⠀⠀![ezgif-108c788e5b3f6878](https://github.com/user-attachments/assets/5a3a2c52-7d1c-4ba4-897f-a5606b8523ae) ![ezgif-137627c8445d54cb](https://github.com/user-attachments/assets/d0f085d3-4131-4119-9cc2-bc91df50029f) ![ezgif-185c6d6fa580c334](https://github.com/user-attachments/assets/7bb3c3aa-0a89-4b44-8055-79396b07a22b) <br />
 
 ![ezgif-10e6e9da3060a5d2](https://github.com/user-attachments/assets/3839df1e-ea9e-472c-b7cd-2584dcf84b00) ⠀<br />
 
